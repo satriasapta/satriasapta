@@ -1,5 +1,3 @@
-### Hi there 👋
-
 ### Hi there, I'm Satria Sapta 👋
 
 ### and here is my stats
